@@ -41,7 +41,7 @@ Acesse Segurança ou Privacidade.
 Ative a opção Fontes Desconhecidas.
 
 ### Passo 2: Baixar o My Family Cinema APK
-Escolha uma Fonte Confiável: Baixe o APK em sites reconhecidos, como APKPure ou APKMirror.
+Escolha uma Fonte Confiável: Baixe o APK em sites reconhecidos, como Modilimitado.
 Certifique-se de baixar a versão mais recente para garantir compatibilidade e recursos atualizados.
 
 ### Passo 3: Instalar o APK
